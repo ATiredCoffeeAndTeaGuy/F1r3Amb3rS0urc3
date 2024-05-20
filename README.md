@@ -1,4 +1,5 @@
-# F!r3Amb3r
-## Hi I'm F!r3Amb3r! I mainly go by He/They/It/Table(Jokingly or not)/Fence(Jokingly or not).
-## Erm ngl I don't know what else to put here :skull:
-## Have a great fanta stick day! <3
+# Now playing,' Uso by Sid ',
+## Hi I'm F!r3Amb3r! I mainly go by He/They/It/Table(Jokingly or not)/Fence(Jokingly or not),
+## I have more stuff on my rentry, so you could check that out ig,
+## Have a great day today!,
+## ' Even when our eyes are closed, there's a whole world out there, that lives outside of ourselves and our dreams. '
